@@ -10,4 +10,4 @@ Meu nome é **Gustavo Costa Nunes**
 
   00001124495605sp@al.educacao.sp.gov.br
 
-  ![(https://pin.it/2ysM1tCSS)]
+  ![.](https://media1.tenor.com/m/sj5c0KMeoc0AAAAC/el-rayooo.gif)
